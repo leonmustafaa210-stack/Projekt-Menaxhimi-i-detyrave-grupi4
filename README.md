@@ -1,0 +1,1 @@
+# Projekt-Menaxhimi-i-detyrave
